@@ -1,2 +1,2 @@
-Pourquoi pas ?
+Pourquoi ?
 oups !
